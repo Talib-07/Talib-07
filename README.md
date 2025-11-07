@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **talib.siddiqui07@gmail.com**
 
-- ⚡ Fun fact **I**
+- ⚡ Fun fact **🎯 I started coding for fun… now it’s my passion.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
